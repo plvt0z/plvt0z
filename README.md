@@ -14,7 +14,9 @@
    
   **check socials in strawpage for more info and follow mee !!**
 
-_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info is there!)*               
+_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info is there!)*    
+
+_**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content is on my TT page! follow !!)*
 
 **c+h** is <ins>allowed</ins> mostly ,, *non-verb* / *no-resp* or *late resp* (occasionaly) 
 
