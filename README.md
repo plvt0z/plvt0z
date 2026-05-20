@@ -1,13 +1,15 @@
 <img width="498" height="281" alt="download" src="https://github.com/user-attachments/assets/7140d038-e400-460e-8a0b-5a27228e3c10" />
 
+----------------------------------------------------------------------------------------------------------------------------------------
 
+**:** ![](https://komarev.com/ghpvc/?username=plvt0z&label=PIRATES/MARINE_SPIES&color=red)   
 
-![](https://komarev.com/ghpvc/?username=plvt0z&label=PIRATES/MARINE_SPIES&color=red) 
 
 -----------------------------------------------------------------------------------------------------------------------------------------
 
 _**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info is there!)*
 
+**c+h** is <ins>allowed</ins> mostly ,, *non-verb* / *no-resp* or *late resp* (occasionaly)
 
 <!--
 **plvt0z/plvt0z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
