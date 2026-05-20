@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![](https://komarev.com/ghpvc/?username=plvt0z&label=PIRATES/MARINE_SPIES&color=red) 
 <!--
 **plvt0z/plvt0z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
