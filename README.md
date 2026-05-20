@@ -2,12 +2,13 @@
 
 
 
-
-
-
-
-
 ![](https://komarev.com/ghpvc/?username=plvt0z&label=PIRATES/MARINE_SPIES&color=red) 
+
+-----------------------------------------------------------------------------------------------------------------------------------------
+
+_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info is there!)*
+
+
 <!--
 **plvt0z/plvt0z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
