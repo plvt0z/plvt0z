@@ -18,7 +18,7 @@ _**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info i
 
 _**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content is on my TT page! follow !!)*
 
-**c+h** is <ins>allowed</ins> mostly ,, *non-verb* / *no-resp* or *late resp* (occasionaly) , could be very _dry_ or _rude_ at times so **pls take note** thanks , **OP** fans _int_ !!
+**c+h** is <ins>allowed</ins> mostly ,, *non-verb* / *no-resp* or *late resp* (occasionaly) , could be very _dry_ or _rude_ at times so **pls take note** thanks ,i have a habit of *isolating* myself **(hard to socalise)** so pls int friendss ... **OP** fans _int_ !!
 
 <img width="195" height="200" alt="Screenshot 2026-05-20 182458" src="https://github.com/user-attachments/assets/3aa21921-fe67-4f66-8f84-6a2d9a48fee4" />
 
