@@ -1,5 +1,7 @@
-<img width="3000" height="1500" alt="download" src="https://github.com/user-attachments/assets/7140d038-e400-460e-8a0b-5a27228e3c10" />
+<img width="6000" height="3000" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
+
+*my gang/party !!*
 ----------------------------------------------------------------------------------------------------------------------------------------
  
 
