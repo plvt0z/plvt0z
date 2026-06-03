@@ -1,7 +1,7 @@
 <img width="5000" height="3000" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
 
-*my gang/party !!*
+*my gang/party*
 ----------------------------------------------------------------------------------------------------------------------------------------
  
 
@@ -15,9 +15,6 @@ _**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(main info b4 
 
 _**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
 
-
-
-wip
 
 ---------------------------------------------------------------------------------------------------------------------------------------
 
