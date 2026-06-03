@@ -1,4 +1,4 @@
-<img width="5000" height="3000" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
+<img width="2560" height="1500" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
 
 *my gang/party*
