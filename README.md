@@ -1,7 +1,7 @@
 <img width="2560" height="1500" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
 
-*my gang/party*
+*<ins>my gang/party</ins>* ,, **_you're my missing piece_**
 ----------------------------------------------------------------------------------------------------------------------------------------
  
 
@@ -11,7 +11,7 @@
 -----------------------------------------------------------------------------------------------------------------------------------------
 
 
-_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(main info b4 int, always iwc/iwec.)*
+_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(read info about me b4 int, always iwc/iwec.)*
 
 _**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
 
