@@ -10,7 +10,7 @@
 
 -----------------------------------------------------------------------------------------------------------------------------------------
 **海賊王に俺はなる！**  _"I will become the Pirate King!"_
- (_**LUFFY FICTKIN ALERTT**_)
+ (_**LUFFY FICTKIN**_) , *i gen dont take ficktin srsly btw, im not thse kind of ppl.*
 
 **<ins>eng</ins>/<ins>malay</ins>** < _speak/understand a little_
    
