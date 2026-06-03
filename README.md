@@ -11,7 +11,7 @@
 -----------------------------------------------------------------------------------------------------------------------------------------
 
 
-_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(main info b4 int)*    
+_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(main info b4 int, always iwc/iwec.)*
 
 _**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
 
