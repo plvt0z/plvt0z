@@ -9,27 +9,15 @@
 
 
 -----------------------------------------------------------------------------------------------------------------------------------------
-**海賊王に俺はなる！**  _"I will become the Pirate King!"_
- (_**LUFFY FICTKIN**_) , *i gen dont take ficktin srsly btw, im not thse kind of ppl.*
-
-**<ins>eng</ins>/<ins>malay</ins>** < _speak/understand a little_
-   
-  **check socials in strawpage for more info and follow mee !!**
-
-_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(all my info is there!)*    
-
-_**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content is on my TT page! follow !!)*
-
-**c+h** is <ins>allowed</ins> mostly ,, *non-verb* / *no-resp* or *late resp* (occasionaly) , could be very _dry_ or _rude_ at times so **pls take note** thanks , i have a habit of *isolating* myself / *leaving myself out* **(hard to socalise)** so pls int friendss ... 
-
-<img width="195" height="200" alt="Screenshot 2026-05-20 182458" src="https://github.com/user-attachments/assets/3aa21921-fe67-4f66-8f84-6a2d9a48fee4" />
-
-<img width="195" height="200" alt="Screenshot 2026-05-20 182636" src="https://github.com/user-attachments/assets/de82f5f5-054d-4c70-bcfa-87fc52c6945e" /> 
-
-<img width="195" height="200" alt="Screenshot 2026-05-20 182852" src="https://github.com/user-attachments/assets/34a02cf8-9366-4bd1-8b8b-c29239bc7a8a" />
 
 
-_<<_ **fictkin poniess (mee!!)** ,, *there are more op ponies i have , just find me !*
+_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(main info b4 int)*    
+
+_**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
+
+
+
+wip
 
 ---------------------------------------------------------------------------------------------------------------------------------------
 
