@@ -1,7 +1,7 @@
 <img width="2560" height="1500" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
 
-*<ins>my gang/party</ins>* ,, **_you're my missing piece_**
+*<ins>my gang/party</ins>* ,,
 ----------------------------------------------------------------------------------------------------------------------------------------
  
 
