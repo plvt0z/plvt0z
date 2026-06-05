@@ -15,6 +15,9 @@ _**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(read info abo
 
 _**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
 
+_*https://arab.org/click-to-help/palestine/*_
+
+
 
 ---------------------------------------------------------------------------------------------------------------------------------------
 
