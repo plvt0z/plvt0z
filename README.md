@@ -1,21 +1,26 @@
-<img width="2560" height="1500" alt="Screenshot 2026-05-31 173930" src="https://github.com/user-attachments/assets/46349fec-2c7a-4dd8-9d34-dbfd37e8f49a" />
 
 
-*<ins>me n my party</ins>* ,,
-----------------------------------------------------------------------------------------------------------------------------------------
- 
 
-**:** ![](https://komarev.com/ghpvc/?username=plvt0z&label=MARINE_SPIES&color=grey)  
-
+<p align="center"><img width="500" height="370" alt="download" src="https://github.com/user-attachments/assets/3b3939fe-533f-47d3-af7f-56ec99833125" />
 
 -----------------------------------------------------------------------------------------------------------------------------------------
+<div align="center">
+  <h1>海賊王に俺はなる！</h1>
+
+![](https://komarev.com/ghpvc/?username=plvt0z&label=MARINE_SPIES&color=grey)  
+  
+
+<p align="center"> https://plutotastic.straw.page</p>
+
+<p align="center"> https://www.tiktok.com/@plvvt00z
+
+<p align="center"> https://arab.org/click-to-help/palestine/
 
 
-_**<ins>strawpage</ins>**_ > _*https://plutotastic.straw.page*_  *(read info about me b4 int, always iwc/iwec.)*
 
-_**<ins>tiktok acc</ins>**_ > _*https://www.tiktok.com/@plvvt00z*_ *(content stuff , feel free to fllw)*
 
-_*https://arab.org/click-to-help/palestine/*_
+
+
 
 
 
