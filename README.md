@@ -7,7 +7,7 @@
 <div align="center">
   <h1>海賊王に俺はなる！</h1>
 
-![](https://komarev.com/ghpvc/?username=plvt0z&label=MARINE_SPIES&color=grey)  
+![](https://komarev.com/ghpvc/?username=plvt0z&label=☆_&color=grey)  
   
 
 <p align="center"> https://plutotastic.straw.page</p>
