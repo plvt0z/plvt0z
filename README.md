@@ -1,22 +1,15 @@
-
-
-
-<p align="center"><img width="500" height="370" alt="download" src="https://github.com/user-attachments/assets/3b3939fe-533f-47d3-af7f-56ec99833125" />
-
------------------------------------------------------------------------------------------------------------------------------------------
 <div align="center">
-  <h1>海賊王に俺はなる！</h1>
 
-![](https://komarev.com/ghpvc/?username=plvt0z&label=☆_&color=grey)  
-  
+![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=grey)  
+
+# $${\color{red}"... And \space you're \space just \space another \space me."}$$   <sub><</sub>  <sub>mw strawpage</sub>
+
+<p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
+
 
 <p align="center"> https://plutotastic.straw.page</p>
 
 <p align="center"> https://www.tiktok.com/@plvvt00z
-
-<p align="center"> https://arab.org/click-to-help/palestine/
-
-
 
 
 
