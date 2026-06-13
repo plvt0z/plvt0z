@@ -7,19 +7,6 @@
 <p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
 
 
-<p align="center"> https://plutotastic.straw.page</p>
-
-<p align="center"> https://www.tiktok.com/@plvvt00z
-
-
-
-
-
-
-
----------------------------------------------------------------------------------------------------------------------------------------
-
-
 <!--
 **plvt0z/plvt0z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
