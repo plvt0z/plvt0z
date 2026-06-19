@@ -1,6 +1,8 @@
 <div align="center">
+  
+ 
 
-![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=grey)  
+
 
 # $${\color{red}"... \space You're \space just \space another \space me."}$$   <sub><</sub>  <sub>mw strawpage</sub>
 
