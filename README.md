@@ -5,7 +5,7 @@
 
 
 
-# $${\color{red}"... \space You're \space just \space another \space me."}$$   <sub><</sub>  <sub>mw strawpage</sub>
+# $${\color{red}"... \space You're \space just \space another \space me."}$$ 
 
 <p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
 
