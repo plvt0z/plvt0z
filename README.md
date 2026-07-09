@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=DA2C43)   
 # $${\color{red}"麦わら."}$$ 
 
-ponytown's [monkey d. luffy](https://github.com/title-town)     <img width="20" height="20" alt="tumblr_ac34135d65cbe8dab8791698ffba5052_4421ea70_75" src="https://github.com/user-attachments/assets/74491791-738e-4bed-b9f1-a8e4fa5b632a" />
+ponytown's [monkey D. luffy](https://github.com/title-town)     <img width="20" height="20" alt="tumblr_ac34135d65cbe8dab8791698ffba5052_4421ea70_75" src="https://github.com/user-attachments/assets/74491791-738e-4bed-b9f1-a8e4fa5b632a" />
 
 <p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
 
