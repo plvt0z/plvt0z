@@ -2,7 +2,7 @@
 
 <img width="70" height="18" alt="cbw9yd" src="https://github.com/user-attachments/assets/c19cc0d1-cf15-42b0-8e1c-26369d5fad18" />
 
-  ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=FAFAFA)   
+  ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=DCDAD9)   
 
 ponytown's [monkey D. luffy](https://github.com/title-town)   : 3 
 <p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
