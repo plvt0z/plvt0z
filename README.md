@@ -1,12 +1,14 @@
 <div align="center">
- 
-  ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=DA2C43)   
-# $${\color{red}"麦わら."}$$ 
 
-ponytown's [monkey D. luffy](https://github.com/title-town)   : 3
+<img width="70" height="18" alt="cbw9yd" src="https://github.com/user-attachments/assets/c19cc0d1-cf15-42b0-8e1c-26369d5fad18" />
 
+  ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=FAFAFA)   
+
+ponytown's [monkey D. luffy](https://github.com/title-town)   : 3 
 <p align="center"><img width="3000" height="4096" alt="New board (4)" src="https://github.com/user-attachments/assets/7201ea7a-ea63-4f40-ae4f-6f5bf69d06d7" />
 
+
+<img width="100" height="30" alt="tumblr_328aaecf6ee0f5fc298b72f83e0aa99c_375a6bae_75" src="https://github.com/user-attachments/assets/bceac056-fcfa-4e39-a8db-ef242afef6d2" />
 
 <!--
 **plvt0z/plvt0z** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
