@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="70" height="18" alt="cbw9yd" src="https://github.com/user-attachments/assets/c19cc0d1-cf15-42b0-8e1c-26369d5fad18" />
+
 
   ![](https://komarev.com/ghpvc/?username=plvt0z&label=glances_&color=DCDAD9)   
 
