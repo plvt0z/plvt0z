@@ -22,3 +22,9 @@ ponytown's [Corazón by Maluma , Nego de Borel](https://github.com/pt-hall-of-me
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=khjgjvolgbk9zf314attuuntp&cover_image=true&theme=default&show_offline=false&background_color=0d1112&interchange=false&profanity=false&hide_remaster=false&bar_color=000000">
   </a>
 </p>
+
+
+
+$${\color{red}This}$$
+$${\color{lightblue}This \space text \space is \space light \space blue}$$
+$${\color{green}Green \space text}$$
