@@ -11,7 +11,8 @@
 &ensp; 
 <img width="540" height="230" alt="0" src="https://github.com/user-attachments/assets/b12e200a-179d-4eda-8e6d-c99a7ba9d273" />
 
-⁞ ℬ𝓸𝓻𝓷 𝓽𝓸 𝓫𝓮 𝔱𝓱𝓮 𝓴𝓲𝓷𝓰 𝓸𝓯 𝓹𝒿ᵣ𝓪𝓽𝓮𝒔 .
+<!-- Inline colored text -->
+⁞  $\color{#e4f5f5}{\text{ℬ𝓸𝓻𝓷}}$ $\color{#e7e8df}{\text{𝓽𝓸}}$ $\color{#edcaab}{\text{𝓫𝓮}}$ $\color{#f5a469}{\text{𝔱𝓱𝓮}}$ $\color{#f39363}{\text{𝓴𝓲𝓷𝓰}}$ $\color{#f26a51}{\text{𝓸𝓯}}$ $\color{#862b2a}{\text{𝓹𝒿ᵣ𝓪𝓽𝓮𝒔}}$
 
 &ensp;&ensp;
 &ensp;&ensp;
