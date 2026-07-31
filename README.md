@@ -4,7 +4,7 @@
   ![](https://komarev.com/ghpvc/?username=plvt0z&label=_♫♪_&color=0D1117)   
 
 
-&ensp; [piratebook](https://pluuutoo.atabook.org/)&ensp;<img width="20" height="20" alt="IMG_9617" src="https://github.com/user-attachments/assets/64064e20-55fd-4a22-bae9-62abaafad074"/>&ensp;[strawpage](https://ppluton.straw.page/)  
+&ensp; ꒰ [新𝕬𝓽𝓪](https://pluuutoo.atabook.org/)&ensp;<img width="20" height="20" alt="IMG_9617" src="https://github.com/user-attachments/assets/64064e20-55fd-4a22-bae9-62abaafad074"/>&ensp;[𝓢t𝖗𝘢𝔀](https://ppluton.straw.page/)  ꒱
 
 <img width="79" height="18" alt="IMG_9618" src="https://github.com/user-attachments/assets/9051e0a3-e88c-4e6a-9ee0-580957971550" />
 
