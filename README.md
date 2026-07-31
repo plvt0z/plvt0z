@@ -6,10 +6,8 @@
 
 &ensp; [piratebook](https://pluuutoo.atabook.org/) &ensp;<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d5dd543b-6734-4c89-9164-430c438e9111" /> &ensp;[strawpage](https://ppluton.straw.page/)  
 
-
-︶︶︶ 𝓼𝓬𝓻𝓸𝓵𝓵 👀 ︶︶︶
  
-<img width="1200" height="1725" alt="Untitled93_20260723200127" src="https://github.com/user-attachments/assets/49b47658-344f-4360-b714-de9b4f3d9188" />
+<img width="540" height="230" alt="0" src="https://github.com/user-attachments/assets/b12e200a-179d-4eda-8e6d-c99a7ba9d273" />
 
 ponytown's [monkey D. luffy](https://github.com/title-town)    
 
@@ -17,9 +15,3 @@ ponytown's [monkey D. luffy](https://github.com/title-town)
 ponytown's [Corazón by Maluma , Nego de Borel](https://github.com/pt-hall-of-media)    
 
 ponytown's [biggest Sergio Ramos fan](https://github.com/fans-town)
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=khjgjvolgbk9zf314attuuntp&cover_image=true&theme=default&show_offline=false&background_color=0d1112&interchange=false&profanity=false&hide_remaster=false&bar_color=000000">
-  </a>
-</p>
-
