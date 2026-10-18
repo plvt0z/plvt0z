@@ -1,8 +1,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=plvt0z&label=blank.&color=0D1117)   
-
+  ![](https://komarev.com/ghpvc/?username=plvt0z&style=flat-square&color=0D1117)
 
 &ensp; [ata](https://pluuutoo.atabook.org/)
 &ensp; 
