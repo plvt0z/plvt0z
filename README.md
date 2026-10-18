@@ -1,7 +1,7 @@
 
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=plvt0z&style=flat-square&color=0D1117)
+ im more active on tiktok (@plvvt00z)
 
 &ensp; [ata](https://pluuutoo.atabook.org/)
 &ensp; 
