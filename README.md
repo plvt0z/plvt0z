@@ -1,9 +1,9 @@
 
 <div align="center">
 
- im more active on tiktok (@plvvt00z)
+ i never had an atabook 
 
-&ensp; [ata](https://pluuutoo.atabook.org/)
+&ensp; [tiktok](https://ww.tiktok.com/@plvvt00z)
 &ensp; 
 
 
